@@ -7,6 +7,8 @@ Falls s andere noni gfunde hesch, da gäbts no eis...
 
 Item
 
+Ich glaub eh Erchlärig schuldi der:
+
 Zum 'Wieso?'
 
 Ich han denkt, ich wott no ei letschti chlini Geste mache. Ich weiss nöd, öbi nomal eh Chance bechume und das isch au okay so. Aber ich wür mer selber wahrschinli nöd vergeh wenni s nöd usgnutzt und d Glegeheit bim Zipfel packt het.
