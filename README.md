@@ -20,7 +20,7 @@ Zum 'Wieso?'
 
 
 
-Ich han denkt, ich wott no ei letschti chlini Geste mache. Ich weiss nöd, öb ich nomal eh Chance bechume und das isch au okay so. 
+Ich han denkt, ich wott no ei letschti chlini Geste mache. Ich han die Ziit - au wenn churz und knackig - sehr fescht gnosse und ich weiss nöd, öb ich nomal eh Chance bechume. Das isch au okay so.
 
 Aber ich wür mer selber wahrschinli nöd vergeh wenni s nöd usgnutzt und d Glegeheit bim Zipfel packt het. Carpe diem und de ganz Scheiss. Ich probiere nur gueti Errinnerige z schaffe.
 
