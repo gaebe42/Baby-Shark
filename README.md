@@ -62,7 +62,7 @@ Item
 (hey dut mer leid, ich bin wük kein Poet)
 
 
-Ich wünsch der verdammt viel Spass det ene. Ich glaub, s wird eh sehr geili Reis mit vielne Erinnerige und Moment wo d lang drah zruggdenke wirsch. Ich hoff, du findsch dis Glück und no vieles meh.
+Ich wünsch der verdammt viel Spass det ene. Ich glaub, s wird eh sehr geili Reis mit vielne Erinnerige und Moment wo d lang drah zruggdenke wirsch. Ich hoff, du findsch dis Glück und no vieles meh wil du wük alles devo verdient hesch.
 
 
 Mach mer eifach de Gfalle und biss zue (checksch?😉) wenn du Chance bechunsch!
