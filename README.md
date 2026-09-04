@@ -75,6 +75,8 @@ Nume s beschte wünschi der und eh gueti Ziit!✌️😜
 
 PS.: Wenn du das alles findsch, schrieb mer bitte nöd. Ich weiss, dass du das alles elei mache willsch und bis du mier schriebe würsch oder ich Ahzeiche gsehne, dass du genau de Text glese hesch, wird die Situation 'Schrödingers Chatz' si. Sowohl glese und au nöd. 
 
-Und genau deshalb isch es legitimiert, dass du frei bisch det ene - ich wür dier nie en Chlotz am Bei si welle. Ich weiss au nöd ganz wie ich s ufneh wür, aber ich glaub das hemmer scho diskutiert. Und s gseht halt au chli us, wie dass es sone 'Dean & Allie'-Situation werde chönnt.
+Und genau deshalb isch es legitimiert, dass du frei bisch det ene - ich wür dier nie en Chlotz am Bei si welle. Ich glaub welle scho, aber ich chönt nie zwüsche dier und dim Glück stah. 
 
-Jedefalls: Danke.
+Ich weiss au nöd ganz wie ich s ufneh wür, wenn die ganze Fäll ihträtted, aber ich glaub das hemmer scho diskutiert. Und s gseht halt au chli us, wie dass es sone 'Dean & Allie'-Situation werde chönnt. Das isch au überhaupt nüd schlechts aber ich glaub Season 2 wird en happige.
+
+Jedefalls: Danke, dass es überhaupt gfunde hesch, dass du bis da ane glese hesch und dass du vilicht mini Entscheidig respektiersch. Machs guet.
