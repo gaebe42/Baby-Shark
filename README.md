@@ -55,8 +55,6 @@ Ich han vollst Verständnis, wenn du dier denksch 'was en scheiss' oder 'digger,
 
 
 
-Item
-
 
 ## s Schlusswort 
 (hey dut mer leid, ich bin wük kein Poet)
