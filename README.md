@@ -44,9 +44,8 @@ Ich han mer denkt, vlt wird das din neue Travel Companion, falls d Welt mal chli
 
 Vilicht wirds au nur eh ferni Erinnerig, ah öppis wo mal gsi isch.
 
-Either way:
 
-Ich han vollst Verständnis, wenn du dier denksch 'was en scheiss' oder 'digger, dasch mer chli z viel' und das alles bi nächster Glegeheit weg schmeissisch und au vergissisch / verdrängsch...
+Ich han wük **vollst Verständnis**, wenn du dier denksch 'was en scheiss' oder 'digger, dasch mer chli z viel' und das alles bi nächster Glegeheit weg schmeissisch und au vergissisch / verdrängsch...
 
  
  
@@ -86,10 +85,12 @@ PS.: Wenn du das alles findsch, schrieb mer bitte nöd. Ich weiss, dass du das a
 
 Und genau deshalb isch es legitimiert, dass du frei bisch det ene - ich wür dier nie en Chlotz am Bei si welle. Ich glaub welle scho, aber ich chönt nie zwüsche dier und dim Glück stah.
 
-Ich han momentan no sehr fescht Müeh zum dich gah lah, wil ich sehr ah dier hänge und s irgendwo dure sicher au weh tuet. Aber das änderet nüd ah de Tatsach, dass ich s Beschte für dich will. Gsehs deshalb als Kompensationsmechanismus für mich und s dut mer wük leid, dass ich die ganz Situation so ahluege und die Gedanke han.
+Ich han momentan no recht Müeh zum das Ganze gah lah, wil ich sehr ah dier hänge und s irgendwo dure sicher au weh tuet. Aber das änderet nüd ah de Tatsach, dass ich s Beschte für dich will. Gsehs deshalb als Kompensationsmechanismus für mich und s dut mer wük leid, dass ich die ganz Situation so ahluege und die Gedanke han.
 
 
 Ich weiss au nöd ganz wie ich s ufneh wür, wenn die ganze Fäll ihträtted, aber ich glaub das hemmer scho diskutiert. Und s gseht halt au chli us, wie dass es sone 'Dean & Allie'-Situation werde chönnt. Das isch au überhaupt nüd schlechts aber ich glaub Season 2 wür en happige werde.
+
+Wenn das irgendöppis änderet, wie du Südamerika jetzt verbringe wirsch, strich das bitte alles us dim Chopf und leb dis Lebe, so wie du s dier ersehnt hesch.
 
 Jedefalls: Danke, dass es überhaupt gfunde hesch, dass du bis da ane glese hesch und dass du vilicht mini Entscheidig respektiersch. Machs guet.
 
