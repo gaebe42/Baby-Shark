@@ -14,16 +14,16 @@ Ich glaub eh Erchlärig schuldi der:
 
 
 
-Zum 'Wieso?'
+## 'Wieso?'
 
 
 
 
-Ich han denkt, ich wott no ei letschti chlini Geste mache. Ich han die Ziit - au wenn churz und knackig - sehr fescht gnosse und ich weiss nöd, öb ich nomal eh Chance bechume. Das isch au okay so.
+Ich han denkt, ich wott no ei letschti chlini Geste mache bevor s verbi isch. Ich han die Ziit - au wenn churz und knackig - sehr fescht gnosse und ich weiss, dass es unsicher isch, öb ich nomal eh Chance bechume. Das isch au okay so.
 
-Aber ich wür mer selber wahrschinli nöd vergeh wenni s nöd usgnutzt und d Glegeheit bim Zipfel packt het. Carpe diem und de ganz Scheiss. Ich probiere nur gueti Errinnerige z schaffe.
+Aber ich wür mer selber wahrschinli nöd vergeh, wenni s nöd usgnutzt und d Glegeheit bim Zipfel packt het. So a la: Carpe diem und de ganz Scheiss. Ich han nur eis Ziel: so viel gueti Errinnerige z schaffe wie möglich.
 
-Zum 'En Hai?'
+## 'En Hai?'
 
 Ich han lang überleit und momentan bini glaub immerno am überlegge wieso en Hai.
 
@@ -36,9 +36,7 @@ Eh paar Idee sind gsi:
 
 
 
-
-
-Zum 'Für was?'
+## 'Für was?'
 
 
 
@@ -60,8 +58,8 @@ Ich han vollst Verständnis, wenn du dier denksch 'was en scheiss' oder 'digger,
 Item
 
 
-
-s Schlusswort (hey dut mer leid, ich bin wük kein Poet):
+## s Schlusswort 
+(hey dut mer leid, ich bin wük kein Poet)
 
 
 Ich wünsch der verdammt viel Spass det ene. Ich glaub, s wird eh sehr geili Reis mit vielne Erinnerige und Moment wo d lang drah zruggdenke wirsch. Ich hoff, du findsch dis Glück und no vieles meh.
@@ -77,4 +75,6 @@ Nume s beschte wünschi der und eh gueti Ziit!✌️😜
 
 
 
-PS.: Wenn du das alles findsch, schrieb mer bitte nöd. Ich weiss, dass du das alles elei mache willsch und bis du mier schriebe würsch oder ich Ahzeiche gsehne, dass du genau de Text glese hesch, wird die Situation 'Schrödingers Chatz' si. Sowohl glese und au nöd. Und genau deshalb isch es legitimiert, dass du frei bisch det ene - ich wür dier nie en Chlotz am Bei si welle. Danke.
+PS.: Wenn du das alles findsch, schrieb mer bitte nöd. Ich weiss, dass du das alles elei mache willsch und bis du mier schriebe würsch oder ich Ahzeiche gsehne, dass du genau de Text glese hesch, wird die Situation 'Schrödingers Chatz' si. Sowohl glese und au nöd. Und genau deshalb isch es legitimiert, dass du frei bisch det ene - ich wür dier nie en Chlotz am Bei si welle. Ich weiss au nöd ganz wie ich s ufneh wür, aber ich glaub das hemmer scho diskutiert.
+
+Jedefalls: Danke.
