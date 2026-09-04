@@ -93,4 +93,4 @@ Ich weiss au nöd ganz wie ich s ufneh wür, wenn die ganze Fäll ihträtted, ab
 
 Jedefalls: Danke, dass es überhaupt gfunde hesch, dass du bis da ane glese hesch und dass du vilicht mini Entscheidig respektiersch. Machs guet.
 
-PPS.: Zweite Gfalle: Bitte lueg mich nöd andersch ah, als bis jetzt.
+PPS.: Zweite Gfalle: Bitte lueg mich nöd andersch ah, als bis jetzt au wenn ich mich grad zum grösste Idiot gmacht han.
