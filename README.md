@@ -85,7 +85,7 @@ PS.: Wenn du das alles findsch, schrieb mer bitte nöd. Ich weiss, dass du das a
 
 Und genau deshalb isch es legitimiert, dass du frei bisch det ene - ich wür dier nie en Chlotz am Bei si welle. Ich glaub welle scho, aber ich chönt nie zwüsche dier und dim Glück stah.
 
-Ich han momentan no recht Müeh zum das Ganze gah lah, wil ich sehr ah dier hänge und s irgendwo dure sicher au weh tuet. Aber das änderet nüd ah de Tatsach, dass ich s Beschte für dich will. Gsehs deshalb als Kompensationsmechanismus für mich und s dut mer wük leid, dass ich die ganz Situation so ahluege und die Gedanke han.
+Ich han momentan no recht Müeh zum das Ganze gah lah, wil ichs sehr gnosse han und s irgendwo dure sicher au weh tuet. Aber das änderet nüd ah de Tatsach, dass ich s Beschte für dich will. Gsehs deshalb als Kompensationsmechanismus für mich und s dut mer wük leid, dass ich die ganz Situation so ahluege und die Gedanke han.
 
 
 Ich weiss au nöd ganz wie ich s ufneh wür, wenn die ganze Fäll ihträtted, aber ich glaub das hemmer scho diskutiert. Und s gseht halt au chli us, wie dass es sone 'Dean & Allie'-Situation werde chönnt. Das isch au überhaupt nüd schlechts aber ich glaub Season 2 wür en happige werde.
