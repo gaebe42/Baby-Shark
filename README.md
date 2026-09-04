@@ -5,7 +5,6 @@ So... du heschs gfunde😅 damn.
 
 No worries, das da isch kein Scam oder susch öppis. So en guete Informatiker bini nöd gsi.
 
-Falls s andere noni gfunde hesch, da gäbts no eis...
 
 Joa Item.
 
